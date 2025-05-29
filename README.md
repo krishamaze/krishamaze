@@ -47,7 +47,7 @@ Always learning, always building — one feature at a time.
 ### 📬 Let’s Connect
 
 📩 krishamaze@gmail.com  
-📷 [@brandtown.in](https://instagram.com/krishanmu.ak)  
+📷 [@Krishna R Shanmu](https://instagram.com/krishanmu.ak)  
 🌐 Portfolio: Coming soon
 
 ---
